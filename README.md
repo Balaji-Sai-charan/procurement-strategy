@@ -45,4 +45,4 @@ The project focused on developing a robust procurement strategy emphasizing:
 ## 📬 Contact
 
 For any queries or collaboration opportunities, feel free to reach out:  
-**[Balaji Sai Charan Karri](https://github.com/Balaji-Sai-charan)**  
+**[Balaji Sai Charan Karri](balajisaicharan975@gmail.com)**  
